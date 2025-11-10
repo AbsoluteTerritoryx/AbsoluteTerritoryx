@@ -8,3 +8,6 @@ before i mention anything else i am NOT TCC!!!!!!
 
 i LOVE following people's githubs..if i follow you its because i think ur cool! 
 
+heres my strawpages!
+regular info one: [https://cielsstrawpaaagee.straw.page](https://cielsstrawpaaagee.straw.page)
+answering one [:https://yaaayquestions.straw.page](https://yaaayquestions.straw.page)
