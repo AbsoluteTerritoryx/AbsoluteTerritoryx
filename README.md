@@ -11,3 +11,10 @@ i LOVE following people's githubs..if i follow you its because i think ur cool!
 heres my strawpages!
 regular info one: [https://cielsstrawpaaagee.straw.page](https://cielsstrawpaaagee.straw.page)
 answering one [:https://yaaayquestions.straw.page](https://yaaayquestions.straw.page)
+
+OTHER INFO!
+
+my dni list: NOTHING! i love meeting new people no matter what! (but i you weird me out i WILL block you)
+
+
+THIS IS VERY UNFINISHED. SORRY! 
